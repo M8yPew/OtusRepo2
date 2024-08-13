@@ -1,2 +1,0 @@
-# OtusRepo2
- 
